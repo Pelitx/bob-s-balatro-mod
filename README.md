@@ -1,5 +1,5 @@
 i dont know how to code but i somehow managed to make it work!!!! yay!!
 
-im planning to update it with custom sounds and more jokers but FOR NOW you got ron okay??? okay.
+im planning to update it with custom sounds and more jokers but FOR NOW you got bob and ron okay??? okay.
 
-![DOWNLOAD](https://github.com/user-attachments/assets/5b261025-2813-4daa-ba8c-8f03ba20d07b)
+<img width="694" height="378" alt="DOWNLOAD" src="https://github.com/user-attachments/assets/b86c7a13-8df6-47d8-ad60-fd10784975d5" />
